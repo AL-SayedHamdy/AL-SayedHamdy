@@ -1,6 +1,6 @@
 ![alt text](https://github.com/AL-SayedHamdy/AL-SayedHamdy/blob/main/AL-Sayed%20Hamdy.png)
 <h1 align="center">Hi 👋, I'm ALSayed Hamdy</h1>
-<h3 align="center">Machine and deep learning engineer</h3>
+<h3 align="center">Data Analyst and Scientist</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=al-sayedhamdy&label=Profile%20views&color=0e75b6&style=flat" alt="al-sayedhamdy" /> </p>
 
