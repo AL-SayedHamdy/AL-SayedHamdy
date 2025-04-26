@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **alsayedhamdy5566@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGI4H0aHYg/63Zjw8vjznYFqkLy5MgDTQ/edit?utm_content=DAGI4H0aHYg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGI4H0aHYg/63Zjw8vjznYFqkLy5MgDTQ/edit?utm_content=DAGI4H0aHYg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
-
 - ⚡ Fun fact **I'm the best**
 
 <h3 align="left">Connect with me:</h3>
